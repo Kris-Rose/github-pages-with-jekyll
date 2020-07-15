@@ -1,3 +1,3 @@
-# Welcome to my blog
+I am Krista. This is a test website.
 
-I'm glad you are here. I plan to talk about ...
+Nice of you to check this out. Enjoy your stay! :smile:

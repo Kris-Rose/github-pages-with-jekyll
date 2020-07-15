@@ -1,3 +1,3 @@
 I am Krista. This is a test website.
 
-Nice of you to check this out. Enjoy your stay! :smile:
+Nice of you to check this out. Enjoy your stay! 
